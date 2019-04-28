@@ -1,3 +1,3 @@
 #my app
-this is my app على الحرام من ديني this is my first app
+this is my app *********** ***********ي this is my first app
 ^_^
